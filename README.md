@@ -2,7 +2,7 @@
 
 [![An image of @donqu1xotechina's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/donqu1xotechina)](https://holopin.io/@donqu1xotechina)
 
-Semi Permanent Tattoo ([https:](https://www.pokeink.com/collections/products))
+Semi Permanent Tattoo ([Temporary Tattoos](https://www.pokeink.com/collections/products))
 
 <!--
 **donqu1xotechina/donqu1xotechina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
